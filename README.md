@@ -1,5 +1,5 @@
 <div align="center">
-<img src= "Este Computador/C:/Usuários/23111385/Downloads">
+<img src= "https://br.pinterest.com/pin/100345897941680411/">
 </div>
 
 <h1 align="center"> meu nome é lanis 🌊 </h1>
