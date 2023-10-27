@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://br.pinterest.com/pin/980869993826512188/">
+<img src="https://www.pinterest.pt/pin/100345897941680411/">
 </div>
 
 <h1 align="center"> meu nome é lanis 🌊 </h1>
